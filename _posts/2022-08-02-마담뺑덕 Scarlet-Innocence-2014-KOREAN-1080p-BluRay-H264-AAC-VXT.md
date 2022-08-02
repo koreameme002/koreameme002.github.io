@@ -1,11 +1,11 @@
 ﻿---
 layout: post
-title:  "마담뺑덕 Scarlet.Innocence.2014.KOREAN.1080p.BluRay.H264.AAC-VXT"
+title:  "마담뺑덕 Scarlet-Innocence-2014-KOREAN-1080p-BluRay-H264-AAC-VXT"
 author: John
 categories: [ 영화 ]
 tags: [  ]
 image:  
-description: "마담뺑덕 Scarlet.Innocence.2014.KOREAN.1080p.BluRay.H264.AAC-VXT torrent 정보 공유"
+description: "마담뺑덕 Scarlet-Innocence-2014-KOREAN-1080p-BluRay-H264-AAC-VXT torrent 정보 공유"
 toc: true
 toc_sticky: true
 ---
