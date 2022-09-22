@@ -2,16 +2,16 @@
 layout: post
 title:  "    스타워즈 스핀오프-안도르 E01~E03 (통합본) Starwars Andor,2022-1080p-KOR-FHDRip-H264-AAC-REEL.torrent"
 author: John
-categories: [ 드라마 ]
+categories: [ 영화 ]
 tags: [  ]
-image: https://torrentrj54.com/uploadfile/full/496b18e925dc76a1789f02e2d2b203c88ccba64e.jpg"/></p><p><img src="https://torrentrj54.com/uploadfile/full/428e076a4438ac251d3cd942ab8fcf8025780716.jpg 
+image: https://torrentrj55.com/uploadfile/full/d1439e3480b18e623ffd089f26850c15165084b5.jpg"/></p><p><img src="https://torrentrj55.com/uploadfile/full/08548faa4477503b00f70db7dfa4c37442ac2c59.jpg 
 description: "    스타워즈 스핀오프-안도르 E01~E03 (통합본) Starwars Andor,2022-1080p-KOR-FHDRip-H264-AAC-REEL torrent 정보 공유"
 toc: true
 toc_sticky: true
 ---
 
 <br>
-<p><img src="https://torrentrj54.com/uploadfile/full/496b18e925dc76a1789f02e2d2b203c88ccba64e.jpg"/></p><p><img src="https://torrentrj54.com/uploadfile/full/428e076a4438ac251d3cd942ab8fcf8025780716.jpg"/></p>
+<p><img src="https://torrentrj55.com/uploadfile/full/d1439e3480b18e623ffd089f26850c15165084b5.jpg"/></p><p><img src="https://torrentrj55.com/uploadfile/full/08548faa4477503b00f70db7dfa4c37442ac2c59.jpg"/></p>
  스타워즈 스핀오프-안도르 E01~E03 (통합본) Starwars Andor,2022.1080p.KOR.FHDRip.H264.AAC-REEL  
     
 <br><br><br>
