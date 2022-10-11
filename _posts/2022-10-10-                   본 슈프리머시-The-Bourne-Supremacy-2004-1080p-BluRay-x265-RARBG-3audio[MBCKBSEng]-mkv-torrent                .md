@@ -1,0 +1,18 @@
+﻿---
+layout: post
+title:  "                   본 슈프리머시-The-Bourne-Supremacy-2004-1080p-BluRay-x265-RARBG-3audio[MBCKBSEng]-mkv-torrent                .torrent"
+author: John
+categories: [ 영화 ]
+tags: [  ]
+image: https://torrentrj57.com/uploadfile/full/66867adfc886a73b792f1f90cecbfbb9a67ced7c.jpg"/></p><p><img src="https://torrentrj57.com/uploadfile/full/b9472f7b137d5230244b346f5ecf444404dd2bfd.jpg 
+description: "                   본 슈프리머시-The-Bourne-Supremacy-2004-1080p-BluRay-x265-RARBG-3audio[MBCKBSEng]-mkv-torrent                 torrent 정보 공유"
+toc: true
+toc_sticky: true
+---
+
+<br>
+<p><img src="https://torrentrj57.com/uploadfile/full/66867adfc886a73b792f1f90cecbfbb9a67ced7c.jpg"/></p><p><img src="https://torrentrj57.com/uploadfile/full/b9472f7b137d5230244b346f5ecf444404dd2bfd.jpg"/></p>
+ 본 슈프리머시.The.Bourne.Supremacy.2004.1080p.BluRay.x265-RARBG.3audio[MBC+KBS+Eng] 기억상실증에 걸린 전직 CIA의 요원 제이슨 본(맷 데이먼 분)은 밤마다 알 수 없는 악몽에 시달린다. 그 악몽이 바로 자신이 예전에 실제로 겪었던 일임을 확신하는 제이슨 본. 그는 자신을 제거하려는 CIA를 피해 연인 마리와 함께 떠돌이 생활을 하지만, 왜 자신이 쫓겨야 하는지 이유조차 모른다. 쫓고 쫓기는 와중에 연인 마리는 CIA 요원에게 살해되고, 제이슨은 자신이 모종의 음모에 연루되어 있음을 알게 된다.  여러가지 단서들을 조각조각 이어 붙여 퍼즐을 맞춰가던 제이슨은 자신이 러시아 하원의원 네스키와 그 부인의 피살사건과 연관돼있음을 알게 된다. 네스키는 러시아에 자본주의가 도입될 무렵에 카스피 해안의 석유개발 산업을 민간에 공개하는데 주도적 역할을 한 러시아 하원의원이었다. 그 사건의 배후엔 CIA 자금 횡령의 음모가 숨어 있었는데... 
+    
+<br><br><br>
+<p data-ke-size="size16"><b><span style="color: green;">주의사항</span></b><br /><br />※저작권 문제로 인해 토렌트 다운로드 링크는<br /><b><span style="color: red;">유사 이미지</span></b>에 숨겨뒀습니다.<br />※Due to copyright issues, the torrent download link is hidden where it looks like an image.<br /><br /><b>'설마'</b>싶은 것까지 확인해 보세요.<br /><br />숨김링크 클릭 시 마그넷 나타나지 않는 것은<br />저작권으로 인한 링크만료 자료로<br />1시간 간격으로 봇에 의해 마그넷 주소 갱신됩니다.</p>
