@@ -4,14 +4,14 @@ title:  "                   [SubsPlease]+Chainsaw+Man+-+01+1080p+[FE86A50F]-mkv-
 author: John
 categories: [ 애니/만화 ]
 tags: [  ]
-image: https://torrentrj57.com/uploadfile/full/375046510e2954c128152aa140475741918a317a.jpg 
+image: https://torrentrj58.com/uploadfile/full/375046510e2954c128152aa140475741918a317a.jpg 
 description: "                   [SubsPlease]+Chainsaw+Man+-+01+1080p+[FE86A50F]-mkv-torrent                 torrent 정보 공유"
 toc: true
 toc_sticky: true
 ---
 
 <br>
-<p><img src="https://torrentrj57.com/uploadfile/full/375046510e2954c128152aa140475741918a317a.jpg"/></p>
+<p><img src="https://torrentrj58.com/uploadfile/full/375046510e2954c128152aa140475741918a317a.jpg"/></p>
  [SubsPlease] 체인소 맨 - 01 [1080p][720p][480p]  
     
 <br><br><br>
